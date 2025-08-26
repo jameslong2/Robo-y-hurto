@@ -22,7 +22,7 @@ pero de la verdad no dan caladas.</br>
 Lo peor es intentar escapar,</br>
 te querrán acusar,</br>
 de amenazarlos con una estaca,</br>
-sumiendote más aun en la farsa,
+sumiendote más aun en la farsa,</br>
 al salir de ahí,</br>
 quedará en tu mente una gran mancha.</br>
 </br>
